@@ -1,16 +1,41 @@
-### Hi there 👋
+### Descobridor dos Sete Mares
 
-<!--
-**HigorY/HigorY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Uma luz azul me guia
+Com a firmeza e os lampejos do farol
+E os recifes lá de cima
+Me avisam dos perigos de chegar
+Angra dos Reis e Ipanema
+Iracema, Itamaracá
+Porto Seguro, São Vicente
+Braços abertos sempre a esperar
+Pois bem, cheguei
+Quero ficar bem à vontade
+Na verdade, eu sou assim
+Descobridor dos sete mares
+Navegar eu quero
+No mar a luz azul me guia
+Com a firmeza e os lampejos do farol
+E os recifes lá de cima
+Me avisam dos perigos de chegar
+Angra dos Reis e Ipanema
+Iracema, Itamaracá
+Porto Seguro, São Vicente
+Braços abertos sempre a esperar
+Pois bem, cheguei
+Quero ficar bem à vontade
+Na verdade, eu sou assim
+Descobridor dos sete mares
+Navegar eu quero
+Uma lua me ilumina
+Com a clareza e o brilho do cristal
+Transando as cores desta vida
+Vou colorindo a alegria de chegar
+Boa Viagem, Ubatuba
+Grumaí, Leme e Guarujá
+Praia Vermelha, Ilhabela
+Braços abertos sempre a esperar
+Pois bem, cheguei
+Quero ficar bem à vontade
+Na verdade, eu sou assim
+Descobridor dos sete mares
+Navegar eu quero
